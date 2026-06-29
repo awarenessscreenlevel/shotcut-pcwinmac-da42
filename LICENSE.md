@@ -1,4 +1,4 @@
-# 
+# Último Shotcut herramientas para Mac OS | Nativo Shotcut herramientas para PC Windows. Con cadenas de efectos y captura de pantalla — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
